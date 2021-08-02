@@ -1,4 +1,4 @@
-### Hi there 👋, my name is Marquinvpv 😁
+### Hi there 👋, my name is Marcus Vinicius 😁
 
 <div>
   <a href="https://github.com/Marquinvpv">
